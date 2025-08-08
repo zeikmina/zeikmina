@@ -1,5 +1,6 @@
 # 💫 About Me:
 a chocolate milk enthusiast
+2nd Year BS Computer Science student
 
 
 ## 🌐 Socials:
